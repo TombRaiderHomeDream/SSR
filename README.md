@@ -29,7 +29,7 @@
 
 **欢迎光顾我的我可爱的 ssr**
 
-**价格最低至 20.9 元/month**
+**价格最低至 14.9 元/month**
 
 ***
 
@@ -60,16 +60,16 @@
 >- 平均测速 :
 >   - 接受：1.7 MB/s
 >   - 发送：1.0 MB/s
->- 速度稳定：`***`
->- **20.9 元/month**
+>- 速度稳定：`****`
+>- **~~20.9 元/month~~** **14.9 元/month**
 
   > 支付宝
-  >- [1 个月](https://i.loli.net/2019/09/22/dKSCz5oTbqR9VUs.jpg)
+  >- [1 个月](https://i.loli.net/2019/09/22/5KRz9EQpbscY6rM.jpg)
   >- [2 个月 - **9.5折**](https://i.loli.net/2019/09/22/qlJwoEUiAR4OeCk.jpg)
   >- [3 个月 - **9折**](https://i.loli.net/2019/09/22/fpbjBkFlmwOTUAa.jpg)
 
   > 微信
-  >- [1 个月](https://i.loli.net/2019/09/22/wEVelLXJ69YgFHT.png)
+  >- [1 个月](https://i.loli.net/2019/09/22/2PaYVEzwjMLlI97.png)
   >- [2 个月 - **9.5折**](https://i.loli.net/2019/09/22/nbjDdkvtLPpqN4l.png)
   >- [3 个月 - **9折**](https://i.loli.net/2019/09/22/qxMkiveVLhuIJ4o.png)
 
